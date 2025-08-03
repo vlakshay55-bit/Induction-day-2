@@ -1,6 +1,6 @@
 # Induction-day-2
-day 2 of our induction is very good and enjoyable 
-# at 3rd day our english and math test is held . we have 50 minutes to complete each test . our test is taken from our seniors . and behaviour of seniors is very friendly with us 
+# day 2 of our induction is very good and enjoyable 
+# at second day our english and math test is held  we have 50 minutes to complete each test . our test is taken from our seniors . and behaviour of seniors is very friendly with us 
 # after that we visit auditorium and when we enter auditorium after few minutes our senior sing a song for us which is very good 🌟 
 # after that our hod mam give us speech and her speech is very motivational 
 # many chief guest were held in induction. 
